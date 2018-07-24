@@ -1,0 +1,2 @@
+# treasury
+all can read
